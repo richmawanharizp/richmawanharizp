@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @richmawanharizp
-- 👀 I’m interested in programming, explore and get advance in excel, and music
-- 🌱 I’m currently learning anything that i like
+- 👀 I’m interested in vb.net programming, explore and get advance in excel, and music
+- 🌱 I’m currently learning anything what i like
 - 📫 You can reach me by my ig : @richmawanharizp
 - 😄 Pronouns: Haris
 - ⚡ Fun fact: Introvert Person :)
